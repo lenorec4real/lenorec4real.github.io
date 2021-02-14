@@ -1,2 +1,2 @@
 # lenorec4real.github.io
-Lenore's personal website
+My personal website at www.lenorechen.com
